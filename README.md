@@ -1,8 +1,5 @@
 # Ayur-Yoga Basis-Kurs von Remo Rittiner: Für wen lohnt sich dieser Online-Yogakurs wirklich? Inhalte, Preis und 14-Tage-Rückgaberecht im Überblick
 
-*Hinweis: Dieser Artikel enthält Werbelinks (Affiliate-Links). Wenn du über einen dieser Links kaufst, erhalten wir eine kleine Provision – ohne zusätzliche Kosten für dich. Das beeinflusst nicht, wie wir den Kurs beschreiben oder bewerten.*
-
----
 
 Stelle dir vor, du rollst morgens die Yogamatte aus, machst zwei Übungen – und merkst irgendwie, dass sich was falsch anfühlt. Der Nacken zieht, das Knie macht Geräusche, und irgendwie bist du nach zwanzig Minuten angestrengter als vorher. Genau dieses Problem hat Remo Rittiner zum Kernthema seines Kurses gemacht.
 
